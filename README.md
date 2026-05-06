@@ -4,4 +4,4 @@
 # sobre mim # wal
 ## aluna
 
-![](https://media.tenor.com/NjZL-9K4CJgAAAAe/kevin-bueno-kevin.png)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSNL9bEVcX2-4kBpHX2Z1QhL5Wdrm74xSWS9Q&s)
